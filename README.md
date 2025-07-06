@@ -4,4 +4,4 @@ This is just a test in class
 ---
 ## Point 1
 
-![](Late-Obafemi-Awolowo-e1460725316441)
+![](Late-Obafemi-Awolowo-e1460725316441.jpg)
